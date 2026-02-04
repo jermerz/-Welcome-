@@ -4,6 +4,7 @@ Hello!! If your reading this its mostly likely reading this from PT!! This is ju
 DNI:
 * Basic certia; NO racism, homophobia, PRO-ICE, NO. WERIDOS.
 * Text spammers. You guys are annoying.
+* RP conplainers, ppl who rant "you type too slow" burn.
 
 DOS!:
 * Any fans of Roblox!!: Forsaken, Pressure, Doors, Grace, ETC!!
